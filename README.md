@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there 👋 - checkout my main profile [@julianmateu](https://github.com/julianmateu)
 
 <!--
 **julian-mateu/julian-mateu** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
